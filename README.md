@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **codeline00@gmail.com**
 
-- ⚡ Fun fact **I have a lot of animals**
+- ⚡ Fun fact **Someone left a family photo on the Moon**
 
 
 <h3 align="left">Languages and Tools:</h3>
